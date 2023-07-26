@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sharon10823
+- 👀 I’m interested in computers 
+- 🌱 I’m currently learning in Daystar University 
+- 💞️ I’m looking to collaborate on computer science and technology 
+- 📫 How to reach me email me @sharonshazzy784@gmail.com and WhatsApp or Imo on +254718248493 
